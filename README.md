@@ -1,0 +1,1 @@
+# AppDeOtimizarWin10.11
